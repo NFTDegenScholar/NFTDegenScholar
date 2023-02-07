@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @NFTDegenScholar aka Essper 
+- 👀 I’m passionate about: Networking, scaling events, raising funds, & creating toolsets for making marketing/fundraising a better experience
+- 🌱 I’m currently learning: Rust, SQL, & Java Script
+- 💞️ I’m looking to collaborate on: An AI backed marketing toolsuite for Web2 x Web3, & a private IDO platform for angel/pre-seed dealflow 
+- 📫 How to reach me: TW/TG - @NFTDegenScholar, & DC - Essper#4393 (DM for email)
+- 🔎 About me: 5+ years marketing across multiple bussiness models, 5+ years in Film/TV licensing (SYNC), partnerships w/ 100+ projects, & 75+ VCs 
+- 📈 Currently scaling: @CannaBuddiezNFT, @The10xScholars (Stealth), @SharkSorcerers (Stealth), & Juniverse. 
+- 🎉 Events: Quality>quantity Hosting high level investor dinners for C-Level execs, goverment families, & marketing agencies in the space. 
